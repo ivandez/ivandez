@@ -3,7 +3,7 @@
 
 ## I am a programmer specialized in back-end.
 
-My English is B1 backed by FUNDAUC University of Carabobo
+My English is B1 endorsed by FUNDAUC University of Carabobo
 
 I enjoy working in a team, sharing ideas and innovating. I always try to demonstrate and promote an attitude that generates trust both in the people / companies that hire me and in the work groups where I work. I am responsible, I take on projects as if they were my own and I do the best job possible.
 
